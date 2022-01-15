@@ -1,1 +1,1 @@
-<h1>Maheboob Nannesab Tumkur from Ilkal</h1>
+<h1>Maheboob Nannesab Tumkur</h1>
